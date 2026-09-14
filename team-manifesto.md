@@ -4,7 +4,7 @@
 wowers
 john joseph WOW letso
 
-Rishelene mae
+Rishelene mae p tallo
 
 
 Gabriel was Here #3
