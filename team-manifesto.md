@@ -2,8 +2,7 @@
 
 
 
-john joseph decierdo so handome wow !!!
-
+John joseph decierdo no.1
 
 
 
